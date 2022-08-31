@@ -1,2 +1,0 @@
-# beiergongzhu.github.io
-beiergongzhu
